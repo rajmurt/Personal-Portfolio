@@ -17,6 +17,6 @@
 
 ## 📬 Let’s Connect
 - 💌 [Email me](saivignesh2k16@gmail.com)
-- 🔗 [LinkedIn](#https://www.linkedin.com/in/rajmurthi-k-m-4b86a1118/)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/rajmurthi-k-m-4b86a1118/)
 
 Always learning, creating, and building the future. Let's collaborate! 🤝
